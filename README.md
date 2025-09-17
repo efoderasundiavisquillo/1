@@ -1,1 +1,1 @@
-# 1
+--Those who seek answers… often stumble upon truths they were never meant to bear.
